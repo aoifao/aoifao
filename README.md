@@ -13,7 +13,7 @@ software + creative technologist
 
 about
 
-IT student + creative technologist interested in
+IT student + digital marketer interested in
 code, design, AI and making things look unnecessarily good.
 
 currently ↓
